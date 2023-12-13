@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ben-not
+- 👀 I’m interested in cookie clicker
+- 🌱 I’m currently learning cookie clicker stock investment
+- 💞️ I’m looking to collaborate on the next cookie click update
+- 📫 How to reach me the cookie clicker donor page
